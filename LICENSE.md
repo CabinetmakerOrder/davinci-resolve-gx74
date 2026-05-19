@@ -1,4 +1,4 @@
-# 
+# Secreto Adobe Premiere Pro para PC plugins é o melhor Adobe Premiere Pro para PC plugins com rastreamento e edição de linha do tempo. Seguro, confiável e otimizado para máximo
 
 
 
